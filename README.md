@@ -1,1 +1,1 @@
-Just some guy that loves chatgpt.
+Just some guy.
